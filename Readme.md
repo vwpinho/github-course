@@ -30,7 +30,7 @@
 
 
 # Github 
-DAgora ta mais apresentavel
-D
-D
 
+
+
+Em processo de aprendizagem.
